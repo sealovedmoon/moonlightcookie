@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @LunarSongy49
+- 👋 Hi, I’m Crescent Moon.
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning how to not hate myself
-- 💞️ I’m looking to collaborate on ...nothing for now
+- 🌱 I’m currently learning how to not hate myself.
+- 💞️ I’m looking to collaborate on nothing for now.
 - 📫 How to reach me: Facebook: https://www.facebook.com/themoonlovedthesea, Discord: Alluring Crescent Moon#0049
 
 <!---
