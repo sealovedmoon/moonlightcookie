@@ -1,4 +1,4 @@
-- 🏳️‍⚧️ She/Her or They/Them.
+- 🏳️‍⚧️ She/Her.
 - 🎵 EDM producer,
 - 🎨 Graphic designer.
 - 🌐 Reach out to me on: [Twitter](https://twitter.com/sealovedmoon), [Instagram](https://instagram.com/sealovedmoon)...
