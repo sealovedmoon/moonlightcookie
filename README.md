@@ -2,4 +2,4 @@
 - 🎵 EDM producer,
 - 🎨 Graphic designer.
 - 🌐 Reach out to me on: [Twitter](https://twitter.com/sealovedmoon), [Instagram](https://instagram.com/sealovedmoon)...
-- 🪅 ...or on Discord: `LunaLometta#0910`
+- 🪅 ...or on Discord: `LunaLometta#0001`
