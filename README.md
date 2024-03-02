@@ -2,6 +2,5 @@
 (I lack any programming skills whatsoever.)
 
 - 🏳️‍⚧️ She/Her
-- 🎵 EDM producer
 - 🎨 Visual artist
 - 🌐 Reach out to me on Discord: @sealovedmoon
